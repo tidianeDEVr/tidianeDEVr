@@ -10,7 +10,7 @@
 
 ## I'm a Developer, Student, Sportif, and Ethical hacker!!
 
-- 🌱 J'apprends actuellement tout 🤣
+- 🌱 J'apprends actuellement tout 
 - 👯 Je cherche à collaborer avec d'autres créateurs de contenu
 - 🥅 2022 Goals: Monter en competences sur Web3
 - ⚡ Fun fact: J'adore jouer aux jeux videos 
